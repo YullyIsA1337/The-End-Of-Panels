@@ -1,6 +1,6 @@
 # The-End-Of-Panels
 
-Done So Far
+[==] Cracked So Far [==]
 
 Project Death -  Cracked
 
@@ -14,7 +14,7 @@ Project Evolution - Cracked
 
 Notus Panel - Cracked
 
-To Do List
+[==] Crack To Do List [==]
 
 Moonlight
 
