@@ -22,8 +22,6 @@ Project Storm - Cracked
 
 Moonlight - old version - were chilling dont clown them :(
 
-Project Wave - Pissed on cracked :kekw
-
 [==] Crack To Do List [==]
 
 Message me yully#1337 
