@@ -20,6 +20,10 @@ Project Gigs - Cracked
 
 Project Storm - Cracked
 
+Project Reaper - Cracked
+
+Wave Panel (Project Wave Wave API)
+
 Moonlight - old version - were chilling dont clown them :(
 
 [==] Crack To Do List [==]
